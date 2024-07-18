@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Puneet Kumar Rai
 - 🏫 I'm currently studying at https://iitbhu.ac.in/
-- 🌱 I’m currently learning CP, Web Dev, ML
+- 🌱 I’m currently learning ML
 - 📫 How to reach me justpuneetrai@gmail.com
