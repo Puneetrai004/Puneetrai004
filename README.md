@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **justpuneetrai@gmail.com**
 
-- 📄 Know about me [https://drive.google.com/drive/folders/1xKfYssReVHIPkyCV0DKpUnwz3NUwYPNJ?usp=sharing](https://drive.google.com/drive/folders/1xKfYssReVHIPkyCV0DKpUnwz3NUwYPNJ?usp=sharing)
+- 📄 Here's my [Resume](https://drive.google.com/file/d/173csaih0U6ud--lycR1moCGl-yewNNg8/view?usp=sharing)
 
 - ⚡ Fun fact **I love Street Photography**
 
